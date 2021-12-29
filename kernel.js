@@ -1,0 +1,43 @@
+Dear mommy, i didn't mean to fuck the dog.
+
+i think he liked it though.
+
+i guess its just part of growing up.
+
+i tried to make it up to him and fuck him a little
+ less than the last time, but maybe that was just a good excuse.
+
+the biggest news was that i got a job at
+ the club i worked at during the summer for the whole school year.
+
+the club is called tiger's & tigers and they cater mainly to young college guys.
+
+it is kind of hard to imagine that i got hired, anyways the dog 
+that i fucked on the first day seems to have taken
+ to me because i haven't seen him yet this week.
+
+what else is new?
+
+oh, that class that i signed up for ended
+ up being so boring that i spent two hours on my day
+ ,yesterday the dog that i fucked fucked me again!
+  he was riding me and then he was on top and 
+ he fucked me right through my jeans.
+
+he took me outside and fucked me right on the front lawn.
+
+it was freezing but we didn't care because he was nice to us and everything.
+
+what else?
+
+i can't remember anything.
+
+maybe it is because i am old.
+
+i have so much going through my head that i can't focus on the right thing.
+
+maybe its because of the drugs or because of the dog that i fucked yesterday.
+
+maybe it is because of everything.
+ 
+ Regards, Tony
